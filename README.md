@@ -1,0 +1,2 @@
+# PythonNotlari_1
+ 
